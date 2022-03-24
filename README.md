@@ -1,1 +1,3 @@
-# Crypto
+# Crypto Enthusiast,
+Educator
+Freelancer 
